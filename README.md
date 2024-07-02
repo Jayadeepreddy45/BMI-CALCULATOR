@@ -2,4 +2,4 @@
 
 ## LETS GENERATE BODAY MASS INDEX VALUES
 
-VIDEO LINK - 
+VIDEO LINK - https://youtu.be/BuRGe2aE7cw
